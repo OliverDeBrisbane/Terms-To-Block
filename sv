@@ -1,4 +1,3 @@
-
 arsle
 brutta
 discofitta
@@ -20,8 +19,8 @@ moonade
 moonar
 moonat
 mutta
-nigger
 neger
+nigger
 olla
 pippa
 pitt
@@ -31,7 +30,7 @@ runka
 röv
 rövhål
 rövknulla
-satan
+shit
 skita
 skit ner dig
 skäggbiff
