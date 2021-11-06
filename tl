@@ -11,4 +11,3 @@ tang ina
 tanga
 tangina
 ulol
-ulol
